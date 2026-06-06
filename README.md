@@ -3,7 +3,7 @@
 -  🌱 I’m currently learning-Tech skills, Communication.🏫📖
 -  💞️ I’m looking to collaborate on- Don't know... ✌️
 -  📫 How to reach me- Instagram,Whatsapp.
--  😄 Pronouns: -------
+-  😄 Pronouns: she/her
 -  ⚡ Fun fact: I'll crack jokes not too better but you'll laugh 😅 
 -   And Finally My name is Aesthetic@2007❣️
 <!---
