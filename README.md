@@ -1,6 +1,5 @@
 -  👋 Hi, I’m @Jaya-ab
--  👀 I’m interested in- Drawing,Cooking,Travelling --🖌️🍳✈️
--  I love aesthetic💞🤍
+-  👀 I’m interested in- Coding, Reading, Drawing --
 -  🌱 I’m currently learning-Tech skills, Communication.🏫📖
 -  💞️ I’m looking to collaborate on- Don't know... ✌️
 -  📫 How to reach me- Instagram,Whatsapp.
